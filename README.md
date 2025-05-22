@@ -25,7 +25,7 @@ I'm a highly motivated and passionate computer engineer with over **12 years of 
 ## 📬 Let's Connect
 
 - 📧 Email: [zubair.mi45@gmail.com](mailto:zubair.mi45@gmail.com)
-- 📍 Location: Bekasi, Indonesia
+- 📍 Location: Depok, Indonesia
 
 ---
 
